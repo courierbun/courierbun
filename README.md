@@ -17,7 +17,7 @@
 
 <details> 
   <summary>${\textsf{\color{#161515} info}}$ </summary> 
-    ${\textsf{\color{#ce3811} mostly⠀offtab⠀. preferably⠀w2i⠀or⠀DM⠀on⠀discord⠀if⠀we⠀have⠀each⠀other⠀added}}$
+    ${\textsf{\color{#4c1b0b} mostly⠀offtab⠀. preferably⠀w2i⠀or⠀DM⠀on⠀discord⠀if⠀we⠀have⠀each⠀other⠀added}}$
     
   ${\textsf{\color{#675049} be⠀mindful⠀of⠀what⠀you⠀say⠀to⠀me⠀,⠀i'm⠀sensitive⠀and⠀take⠀most⠀things⠀to⠀heart}}$
   
@@ -29,7 +29,7 @@
   
  ${\textsf{\color{#161515}20 y.o}}$
  
- ${\textsf{\color{#ce3811} i've known⠀about⠀RE⠀for years⠀and⠀saw⠀DAGames⠀play⠀RE2⠀remake⠀all⠀the⠀way⠀back⠀in⠀2019⠀.}}$
+ ${\textsf{\color{#4c1b0b} i've known⠀about⠀RE⠀for years⠀and⠀saw⠀DAGames⠀play⠀RE2⠀remake⠀all⠀the⠀way⠀back⠀in⠀2019⠀.}}$
 
  ${\textsf{\color{#675049} i⠀just⠀never⠀had⠀the⠀interest⠀to⠀properly⠀get⠀into⠀the⠀series⠀until⠀bryan⠀please⠀don't⠀shame⠀me⠀.⠀i⠀am⠀actively}}$
 
