@@ -3,32 +3,34 @@
   
 <div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=93546F&width=435&lines=Word+of+advice%3A+Don't+break+the+law.;+Hmm%2C+is+there+anything+else%3F;+Oh%2C+yeah...+Seriously%2C;Don't+break+the+law." alt="Typing SVG" /></a>
 
-<div align="center"> <img width="1085" height="1118" alt="tumblr_6fc0bdd0ed05a9b1415c30623a07ce0d_3fe230bd_1280" src="https://github.com/user-attachments/assets/92199040-7115-4264-b4ee-6f621dfc0086" />
-<p align="center"> <sub> ${\textsf{\color{#93546F} bryan hodukavich yume , dbls dniuf}}$ </sub>
+<div align="center"> <img width="1284" height="726" alt="tumblr_b0cb5cbb220b39dfa1299bedb5734e79_bac7dcb1_2048" src="https://github.com/user-attachments/assets/9ab842b0-3108-4fb7-bbb8-cbaa083846cd" />
+<p align="center"> <sub> ${\textsf{\color{#ce3811} bryan hodukavich riako , dbls dniuf}}$ </sub>
 
 <details> 
-  <summary>${\textsf{\color{#0e0d13} pt info}}$ </summary> 
-    ${\textsf{\color{#935471} unavailable⠀from⠀10 pm⠀-⠀10⠀am⠀UTC+3}}$
+  <summary>${\textsf{\color{#161515} info}}$ </summary> 
+    ${\textsf{\color{#ce3811} mostly⠀offtab⠀. preferably⠀w2i⠀or⠀DM⠀on⠀discord⠀if⠀we⠀have⠀each⠀other⠀added}}$
     
-  ${\textsf{\color{#0e0d13} be⠀mindful⠀of⠀what⠀you⠀say⠀to⠀us⠀,⠀we’re⠀sensitive⠀and⠀take⠀most⠀things⠀to⠀heart}}$
+  ${\textsf{\color{#675049} be⠀mindful⠀of⠀what⠀you⠀say⠀to⠀me⠀,⠀i'm⠀sensitive⠀and⠀take⠀most⠀things⠀to⠀heart}}$
   
-  ${\textsf{\color{#935471} i⠀have⠀a⠀dni⠀and⠀also⠀block⠀freely,⠀if⠀i’m sitting⠀on⠀someone⠀they’re⠀likely⠀blocked!}}$
+  ${\textsf{\color{#161515} i⠀have⠀a⠀dni⠀and⠀also⠀block⠀freely⠀,⠀if⠀i’m sitting⠀on⠀someone⠀they’re⠀likely⠀blocked!}}$
   
-  ${\textsf{\color{#0e0d13} we⠀have⠀dyslexia⠀so⠀if⠀you⠀have⠀typing⠀quirks⠀like⠀leet⠀pls⠀pls⠀tone⠀it⠀down⠀around⠀us⠀૮꒰◞ ˕ ◟ ྀི꒱ა }}$
+  ${\textsf{\color{#ce3811} i⠀have⠀dyslexia⠀so⠀if⠀you⠀have⠀typing⠀quirks⠀like⠀leet⠀pls⠀pls⠀tone⠀it⠀down⠀around⠀me}}$
   
-  ${\textsf{\color{#935471} basic⠀DNI⠀+⠀darkshippers/proshippers⠀genuinely⠀stay⠀the⠀fuck⠀away⠀from⠀me }}$
+  ${\textsf{\color{#675049} basic⠀DNI⠀+⠀darkshippers/proshippers⠀genuinely⠀stay⠀the⠀fuck⠀away⠀from⠀me }}$
   
- ${\textsf{\color{#0e0d13}20 y.o}}$
+ ${\textsf{\color{#161515}20 y.o}}$
  
- ${\textsf{\color{#935471} genshin⠀player⠀since⠀april 2021⠀and⠀wrio⠀yume⠀since⠀december⠀2023}}$
+ ${\textsf{\color{#ce3811} i've known⠀about⠀RE⠀for years⠀and⠀saw⠀DAGames⠀play⠀RE2⠀remake⠀all⠀the⠀way⠀back⠀in⠀2019⠀.}}$
 
-  ${\textsf{\color{#0e0d13} huge⠀cudcomf⠀,⠀c*h⠀freely⠀!!⠀do⠀NOT⠀cover⠀unless⠀you're⠀cuddling }}$
+ ${\textsf{\color{#675049} i⠀just⠀never⠀had⠀the⠀interest⠀to⠀properly⠀get⠀into⠀the⠀series⠀until⠀bryan⠀please⠀don't⠀shame⠀me⠀.⠀i⠀am⠀actively}}$
 
-  ${\textsf{\color{#935471} (♡ˊ͈ ꒳ ˋ͈) }}$
+ ${\textsf{\color{#161515} watching⠀lore⠀and⠀story⠀videos⠀and⠀when⠀i'm⠀free⠀i⠀play⠀RE6⠀thank⠀you⠀yumi⠀for⠀that⠀.⠀shoutout⠀to⠀@infexticn⠀<3}}$
+
+  ${\textsf{\color{#ce3811} (♡ˊ͈ ꒳ ˋ͈) }}$
 
 </details>
   
-<p align="center"> ${\textsf{\color{#0e0d13} "Oh, it's raining? That's alright. A real problem would be if we could feel water dripping on our heads in the Fortress of Meropide." }}$
+<p align="center"> ${\textsf{\color{#161515} "Oh, it's raining? That's alright. A real problem would be if we could feel water dripping on our heads in the Fortress of Meropide." }}$
 <div align="center">
 
 <a href=https://malharejayexe.atabook.org/>
@@ -38,5 +40,5 @@
 
 <div align="center"><img width="1284" height="726" alt="tumblr_b0cb5cbb220b39dfa1299bedb5734e79_bac7dcb1_2048" src="https://github.com/user-attachments/assets/9ab842b0-3108-4fb7-bbb8-cbaa083846cd" />
 
-<p align="center"> <sub> ${\textsf{\color{#93546F} graphs + pfp made by @prismaticvampire on tumblr}}$ </sub>
+<p align="center"> <sub> ${\textsf{\color{#ce3811} graphs + pfp made by @chareuffen on tumblr}}$ </sub>
 
