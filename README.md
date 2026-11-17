@@ -14,7 +14,7 @@
   
   ${\textsf{\color{#161515} i⠀have⠀a⠀dni⠀and⠀also⠀block⠀freely⠀,⠀if⠀i’m sitting⠀on⠀someone⠀they’re⠀likely⠀blocked!}}$
   
-  ${\textsf{\color{#ce3811} i⠀have⠀dyslexia⠀so⠀if⠀you⠀have⠀typing⠀quirks⠀like⠀leet⠀pls⠀pls⠀tone⠀it⠀down⠀around⠀me}}$
+  ${\textsf{\color{#4c1b0b} i⠀have⠀dyslexia⠀so⠀if⠀you⠀have⠀typing⠀quirks⠀like⠀leet⠀pls⠀pls⠀tone⠀it⠀down⠀around⠀me}}$
   
   ${\textsf{\color{#675049} basic⠀DNI⠀+⠀darkshippers/proshippers⠀genuinely⠀stay⠀the⠀fuck⠀away⠀from⠀me }}$
   
@@ -26,19 +26,17 @@
 
  ${\textsf{\color{#161515} watching⠀lore⠀and⠀story⠀videos⠀and⠀when⠀i'm⠀free⠀i⠀play⠀RE6⠀thank⠀you⠀yumi⠀for⠀that⠀.⠀shoutout⠀to⠀@infexticn⠀<3}}$
 
-  ${\textsf{\color{#ce3811} (♡ˊ͈ ꒳ ˋ͈) }}$
-
 </details>
   
-<p align="center"> ${\textsf{\color{#161515} "Oh, it's raining? That's alright. A real problem would be if we could feel water dripping on our heads in the Fortress of Meropide." }}$
+<p align="center"> ${\textsf{\color{#4c1b0b} "Oh, it's raining? That's alright. A real problem would be if we could feel water dripping on our heads in the Fortress of Meropide." }}$
 <div align="center">
 
 <a href=https://malharejayexe.atabook.org/>
- <img width="214" height="122" alt="Untitled218_20260925032128" src="https://github.com/user-attachments/assets/e1316ec6-9f1d-4baa-b9ce-93bbf09a20d1" /> <a href=https://yourlocaljayjay.straw.page/> <img width="315" height="102" alt="Untitled218_20260925032206" src="https://github.com/user-attachments/assets/01f3e353-4b6c-486e-9958-4b50e84de871" />
-
+ <img width="315" height="102" alt="Untitled281_20261117023125" src="https://github.com/user-attachments/assets/2faf0801-faab-4180-a0ba-5eda7e9738d0" /> <a href=https://yourlocaljayjay.straw.page/> <img width="315" height="102" alt="Untitled281_20261117023105" src="https://github.com/user-attachments/assets/e836ca2c-d3fe-4a11-8765-60bb38054ad2" />
+  </a>
   </a>
 
-<div align="center"><img width="1284" height="726" alt="tumblr_b0cb5cbb220b39dfa1299bedb5734e79_bac7dcb1_2048" src="https://github.com/user-attachments/assets/9ab842b0-3108-4fb7-bbb8-cbaa083846cd" />
+<div align="center"><img width="942" height="143" alt="tumblr_6abf5dd403755b594de3d215ac150b23_4d2b35fe_1280" src="https://github.com/user-attachments/assets/bea89978-70f4-478e-b45f-e2849ffbaedd" />
 
-<p align="center"> <sub> ${\textsf{\color{#ce3811} graphs + pfp made by @chareuffen on tumblr}}$ </sub>
+<p align="center"> <sub> ${\textsf{\color{#4c1b0b} graphs + pfp made by @chareuffen on tumblr}}$ </sub>
 
